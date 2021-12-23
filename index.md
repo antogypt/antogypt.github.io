@@ -1,7 +1,7 @@
 # DNI/BYF
 
 
-**TMEs and not lesbians ask before following!! (current followers, tme lesbians and transfem that aren't lesbians are okay**
+**TMEs and not lesbians ask before following!! (current followers, tme lesbians and transfems that aren't lesbians are okay**
 
 fit the basic criteria (lgbtq+phobic, transmed, terf/swerf, ableist, racist, lookist, fatphobic, sexist, misogynist, exclus etc)
 
