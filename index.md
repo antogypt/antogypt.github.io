@@ -7,7 +7,7 @@
 * nsfw account
 * don't support self-diagnosing
 * 18+, unless i follow first
-* use terms "f3mboy" and "tr@p" as tme
+* use terms "femboy" and "trap" as tme
 * make fun of trigger warnings
 * xenogender hater
 * think that pronouns always equal gender
