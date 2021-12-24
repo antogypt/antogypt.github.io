@@ -37,10 +37,23 @@
 * use **lesya don't look** or **lesya dont look** as a catchall
 
 
-# About
+# Names
 
-* lesya/paraska/zhenya/cassius
-* it/she/sim + he/they **only for close mutuals** + [pronouny](https://pronouny.xyz/u/aensereda)
+* lesya (most preferred)
+* paraska
+* zhenya
+* cassius
+
+# Pronouns
+
+* it/its 
+* she/her
+* sim/sem
+* he/they **only for close mutuals**
+* [pronouny](https://pronouny.xyz/u/aensereda)
+
+# Other info
+
 * white (ukrainian)
 * agnostic
 * SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
@@ -62,3 +75,11 @@
 * typology (mainly enneagram, cognitive functions, attitudinal psyches; *[i don't support mbti](https://16types.carrd.co))*
 * linux
 * linguistics
+
+
+# Links
+
+* [main twitter account](https://twitter.com/aensereda)
+* [art twitter account](https://twitter.com/antogypt)
+* [instagram](https://instagram.com/aensereda)
+* [threads](https://twitter.com/aensereda/status/1387315455619211264?s=19)
