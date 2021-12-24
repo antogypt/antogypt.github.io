@@ -1,13 +1,12 @@
 # DNI
 
-
 **TMEs and not lesbians ask before following!! (current followers and people whom i followed first are ok)**
 * fit the basic criteria
 * radinclus
 * nsfw account
 * don't support self-diagnosing
 * 18+, unless i follow first
-* use terms "femboy" and "trap" as tme
+* use the term "femboy" and the t-slur as tme
 * make fun of trigger warnings
 * xenogender hater
 * think that pronouns always equal gender
@@ -19,9 +18,7 @@
 * support the annexion of Crimea
 
 
-
 # BYF
-
 
 * i won't always reply to your dm, sorry i can just not feel good or i don't know what to say or i just forgot
 * please use tone indicators when talking to me
@@ -31,8 +28,16 @@
 * if i follow/interact with someone problematic, tell me
 * if i don't tag something, tell me
 
-# About
 
+# Tag these:
+
+* intrusive thoughts
+* weight
+* the word "femboy" and the t-slur (tag with the catchall if you can't reclaim)
+* use **lesya don't look** or **lesya dont look** as a catchall
+
+
+# About
 
 * lesya/paraska/zhenya/cassius
 * it/she/sim + he/they **only for close mutuals** + [pronouny](https://pronouny.xyz/u/aensereda)
@@ -43,6 +48,17 @@
 
 <img src="https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png" width="25" height="15" /> lesbian <img src="https://user-images.githubusercontent.com/94326065/147364094-5c35cbe3-4d41-4db1-9f55-594b1053f359.png" width="25" height="15" /> transfem <img src="https://user-images.githubusercontent.com/94326065/147364193-8a382647-a2f5-4784-92df-99127f49f332.png" width="25" height="15" /> genderfluid
  <img src="https://user-images.githubusercontent.com/94326065/147364149-a7d45b4e-04f6-4550-aa9f-3e66f0a24b06.jpg" width="25" height="15" /> aroace <img src="https://user-images.githubusercontent.com/94326065/147364248-4ced7c17-f67a-4e4b-afe5-768a98b51f8b.png" width="25" height="15" /> polyamorous
-
-
-
+ 
+ 
+ # Interests
+ 
+* Deltarune
+* Hollow Knight
+* Stardew Valley
+* The Sims
+* Celeste
+* Terraria
+* art
+* typology (mainly enneagram, cognitive functions, attitudinal psyches; *[i don't support mbti](https://16types.carrd.co))*
+* linux
+* linguistics
