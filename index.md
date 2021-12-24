@@ -45,6 +45,11 @@
 * zhenya
 * cassius
 
+# Terms
+
+* use all feminine and/or neutral terms (guy and dude are **not** gender-neutral terms for me)
+* never use masc terms for me
+
 # Pronouns
 
 * it/its 
