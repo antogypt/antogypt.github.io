@@ -39,7 +39,7 @@
 
 # Names
 
-* lesya (most preferred)
+* **lesya (most preferred)**
 * paraska
 * zhenya
 * cassius
