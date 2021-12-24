@@ -34,11 +34,11 @@
 # About
 
 
-lesya/paraska/zhenya/cassius
-it/she/sim + he/they **only for close mutuals** + [pronouny](https://pronouny.xyz/u/aensereda)
-white (ukrainian)
-agnostic
-SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
-self-dx ocd and autism
+* lesya/paraska/zhenya/cassius
+* it/she/sim + he/they **only for close mutuals** + [pronouny](https://pronouny.xyz/u/aensereda)
+* white (ukrainian)
+* agnostic
+* SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
+* self-dx ocd and autism
 
 ![IMG_3333_1200x1200](https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png) lesbian
