@@ -1,12 +1,12 @@
 # DNI
 
-**TMEs`*` ask before following!! (tcurrent followers and people whom i followed first are ok)**
+**TMEs ask before following!! (tcurrent followers and people whom i followed first are ok)**
 * fit the basic criteria
 * radinclus
 * nsfw account
 * don't support self-diagnosing
 * 18+, unless i follow first
-* use the term "femboy" and the t-slur as tme*
+* use the term "femboy" and the t-slur as tme
 * make fun of trigger warnings
 * xenogender hater
 * think that pronouns always equal gender
