@@ -63,16 +63,7 @@
  <img src="https://user-images.githubusercontent.com/94326065/147364149-a7d45b4e-04f6-4550-aa9f-3e66f0a24b06.jpg" width="25" height="15" /> aroace <img src="https://user-images.githubusercontent.com/94326065/147364248-4ced7c17-f67a-4e4b-afe5-768a98b51f8b.png" width="25" height="15" /> polyamorous
 
 
-# Links
-
-* [main twitter account](https://twitter.com/aensereda)
-* [art twitter account](https://twitter.com/antogypt)
-* [instagram](https://instagram.com/aensereda)
-* [threads](https://twitter.com/aensereda/status/1387315455619211264?s=19)
-
-
- 
- # Interests
+# Interests
  
 * Deltarune
 * Hollow Knight
@@ -84,3 +75,11 @@
 * typology (mainly enneagram, cognitive functions, attitudinal psyches; *[i don't support mbti](https://16types.carrd.co))*
 * linux
 * linguistics
+
+
+# Links
+
+* [main twitter account](https://twitter.com/aensereda)
+* [art twitter account](https://twitter.com/antogypt)
+* [instagram](https://instagram.com/aensereda)
+* [threads](https://twitter.com/aensereda/status/1387315455619211264?s=19)
