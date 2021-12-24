@@ -1,6 +1,6 @@
 # DNI
 
-**TMEs* ask before following!! (tcurrent followers and people whom i followed first are ok)**
+**TMEs`*` ask before following!! (tcurrent followers and people whom i followed first are ok)**
 * fit the basic criteria
 * radinclus
 * nsfw account
