@@ -63,6 +63,7 @@
  <img src="https://user-images.githubusercontent.com/94326065/147364149-a7d45b4e-04f6-4550-aa9f-3e66f0a24b06.jpg" width="25" height="15" /> aroace <img src="https://user-images.githubusercontent.com/94326065/147364248-4ced7c17-f67a-4e4b-afe5-768a98b51f8b.png" width="25" height="15" /> polyamorous
  
  
+ 
  # Interests
  
 * Deltarune
