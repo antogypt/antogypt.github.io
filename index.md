@@ -22,9 +22,9 @@
 # BYF
 
 * i won't always reply to your dm, sorry i can just not feel good or i don't know what to say or i just forgot
-* please use tone indicators when talking to me
+* use tone indicators if you're unsure about the tone when talking to me
 * i tag caps, but i can't tag keysmash and repetition
-* i don't swear but i can retweet something that contains swearing
+* i don't swear, but i can retweet something that contains swearing
 * i type with mistakes intentionally so if you want me to stop, tell me
 * if i follow/interact with someone problematic, tell me
 * if i don't tag something, tell me
