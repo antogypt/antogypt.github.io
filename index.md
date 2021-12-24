@@ -1,7 +1,7 @@
 # DNI
 
 
-**TMEs and not lesbians ask before following!! (current followers, tme lesbians and transfems that aren't lesbians are okay)**
+**TMEs and not lesbians ask before following!! (current followers and people whom i followed first are ok)**
 * fit the basic criteria
 * radinclus
 * nsfw account
@@ -30,3 +30,15 @@
 * i type with mistakes intentionally so if you want me to stop, tell me
 * if i follow/interact with someone problematic, tell me
 * if i don't tag something, tell me
+
+# About
+
+
+lesya/paraska/zhenya/cassius
+it/she/sim + he/they **only for close mutuals** + [pronouny](https://pronouny.xyz/u/aensereda)
+white (ukrainian)
+agnostic
+SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
+self-dx ocd and autism
+
+![IMG_3333_1200x1200](https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png) lesbian
