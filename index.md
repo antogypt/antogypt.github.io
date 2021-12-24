@@ -41,4 +41,4 @@
 * SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
 * self-dx ocd and autism
 
-<img src="https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png" width="20" height="20" /> lesbian
+<img src="https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png" width="40" height="20" /> lesbian
