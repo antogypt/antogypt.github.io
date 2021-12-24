@@ -73,7 +73,7 @@
 * Terraria
 * art
 * typology (mainly enneagram, cognitive functions, attitudinal psyches; *[i don't support mbti](https://16types.carrd.co))*
-* linux
+* linux, other FOSS
 * linguistics
 
 
