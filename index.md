@@ -2,6 +2,7 @@
 
 **TMEs ask before following!! (tcurrent followers and people whom i followed first are ok)**
 * fit the basic criteria
+* proship
 * radinclus
 * nsfw account
 * don't support self-diagnosing
@@ -52,6 +53,7 @@
 
 # Pronouns
 
+* **Don't use prn/prns on me!!**
 * it/its 
 * she/her
 * sim/sem
