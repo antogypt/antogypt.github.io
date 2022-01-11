@@ -1,30 +1,31 @@
 # DNI
 
-**TMEs ask before following!! (tcurrent followers and people whom i followed first are ok)**
+*(tme - transmisogyny exempt, a person who isn't transfem)*
+
+**TMEs ask before following!! (current followers and people whom i followed first are ok)**
+**TME furries dni at all, unless i followed first!!
+
 * fit the basic criteria
 * proship
 * radinclus
 * nsfw account
 * don't support self-diagnosing
-* 18+, unless i follow first
+* 18+ years old, unless i follow first
 * use the term "femboy" and the t-slur as tme
 * make fun of trigger warnings
 * xenogender hater
 * think that pronouns always equal gender
 * support genderbend
-* support pedophiles and zoophiles, are a pedophile or a zoophile
-* support straight/m-spec lesbians/gays
+* pedo/zoo/necrophile or a supporter
+* straight/m-spec lesbian/gay or a supporter
 * use slurs you can't reclaim
 * are ukrainophobic
 * support the annexion of Crimea
 
-*(tme - transmisogyny exempt, a person who isn't transfem)*
-
-# BYF
+# Notes
 
 * i won't always reply to your dm, sorry i can just not feel good or i don't know what to say or i just forgot
 * use tone indicators if you're unsure about the tone when talking to me
-* i tag caps, but i can't tag keysmash and repetition
 * i don't swear, but i can retweet something that contains swearing
 * i type with mistakes intentionally so if you want me to stop, tell me
 * if i follow/interact with someone problematic, tell me
@@ -35,7 +36,7 @@
 
 * intrusive thoughts
 * weight
-* the word "femboy" and the t-slur (tag with the catchall if you can't reclaim)
+* the word "femboy" and the t-slurs (tag with the catchall if you can't reclaim)
 * use **lesya don't look** or **lesya dont look** as a catchall
 
 
@@ -57,13 +58,14 @@
 * it/its 
 * she/her
 * sim/sem
-* he/they **only for close mutuals**
+* he/they **only for close mutuals and transfems**
 * [pronouny](https://pronouny.xyz/u/aensereda)
 
 # Other info
 
 * white (ukrainian)
 * agnostic
+* 17
 * SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
 * self-dx ocd and autism
 
@@ -87,7 +89,7 @@
 
 # Links
 
-* [main twitter account](https://twitter.com/aensereda)
+* [main twitter account](https://twitter.com/lesyapphic)
 * [art twitter account](https://twitter.com/antogypt)
 * [instagram](https://instagram.com/aensereda)
 * [threads](https://twitter.com/aensereda/status/1387315455619211264?s=19)
