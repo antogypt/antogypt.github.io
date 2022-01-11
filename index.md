@@ -3,7 +3,7 @@
 *(tme - transmisogyny exempt, a person who isn't transfem)*
 
 **TMEs ask before following!! (current followers and people whom i followed first are ok)**
-**TME furries dni at all, unless i followed first!!
+**TME furries dni at all, unless i followed first!!**
 
 * fit the basic criteria
 * proship
