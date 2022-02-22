@@ -5,7 +5,7 @@
 
 *(tme - transmisogyny exempt, a person who isn't transfem)*
 
-**TMEs ask before following!! (current followers and people whom i followed first are ok)**
+**TMEs ask before following!! (people whom i followed first are ok)**
 
 * fit the basic criteria
 * russian (unless i follow first)
