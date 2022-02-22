@@ -1,79 +1,81 @@
-# DNI
-
-*(tme - transmisogyny exempt, a person who isn't transfem)*
-
-**TMEs ask before following!! (current followers and people whom i followed first are ok)**
-
-* fit the basic criteria
-* russian (unless i follow first)
-* tme furry (unless i follow first)
-* proship
-* radinclus
-* nsfw account
-* don't support self-diagnosing
-* 18+ years old, unless i follow first
-* use the term "femboy" and the t-slur as tme
-* make fun of trigger warnings
-* xenogender hater
-* think that pronouns and appearance always equal gender
-* pedo/zoo/necrophile or a supporter
-* straight/m-spec lesbian/gay or a supporter
-* use slurs you can't reclaim
-* are ukrainophobic
-* support the annexion of Crimea
-
-# Notes
-
-* i won't always reply to your dm, sorry i can just not feel good or i don't know what to say or i just forgot
-* use tone indicators if you're unsure about the tone when talking to me
-* i don't swear, but i can retweet something that contains swearing
-* i type with mistakes intentionally so if you want me to stop, tell me
-* if i follow/interact with someone problematic, tell me
-* if i don't tag something, tell me
+# [ENGLISH](https://antogypt.github.io/eng)
 
 
-# Tag these:
+# Не взаємодійте!
 
-* intrusive thoughts
-* weight
-* the word "femboy" and the t-slur (tag with the catchall if you can't reclaim)
-* use **lesya don't look** or **lesya dont look** as a catchall
+*(tme - виняток трансмізогінії, людина, яка не є трансфем)*
+
+**TME запитуйте, перш ніж читати мене!! (це не стосується поточних читачів і людей, яких я читала до цього)**
+
+* відповідаєте базовим dni критеріям
+* росіян_ка (не стосується, якщо я першою вас почала читати)
+* tme фурі (не стосується, якщо я першою вас почала читати)
+* прошип
+* радінклюз
+* nsfw обліківка
+* не підтримуєте самодіягностику
+* вам більше 18 (не стосується, якщо я першою вас почала читати)
+* вживаєте т-слюр і термін "фембой" як tme
+* не підтримуєте та/або висміюєте попередження про тригери
+* не підтримуєте ксеногендери
+* вважаєте, що займенники і зовнішній вигляд завжди дорівнюють гендеру
+* педо/зоо/некрофіл або підтримуєте їх
+* гетеро/м-спек лесбійка/ґей або підтримуєте їх
+* вживаєте слюри, які не можете вживати
+* українофоб_ка
+* підтримуєте анексію Криму
+
+# Додаткові нотатки
+
+* я не завжди відповідатиму на ваші повідомлення, я могла або недобре себе почувати для розмов, або не знала, що сказати, або просто забула
+* використовуйте індикатори тону, коли ви невпевнені щодо тону при розмові зі мною
+* я не вживаю нецензурну лайку, але можу ретвітити дещо, що містить її
+* інколи, я можу писати з помилками навмисно, якщо ви хочете, щоб я припинила, тоді скажіть мені
+* якщо я читаю/взаємодію з кимось проблематичним - повідомте мене
+* якщо я не поставила в твіті попередження - повідомте мене
 
 
-# Names
+# Ставте попередження про це:
 
-* **lesya (most preferred)**
-* paraska
-* zhenya
-* cassius
+* нав'язливі думки 
+* розмова про вагу
+* термін "фембой" і т-слюр (позначайте всеосяжним терміном або ставте "фб-слюр //" чи "т-слюр //", якщо ви не можете вживати ці терміни)
+* використовуйте "леся не дивися", "lesya don't look" або "lesya dont look" як всеосяжні терміни
 
-# Terms
 
-* use all feminine and/or neutral terms (guy and dude are **not** gender-neutral terms for me)
-* never use masc terms for me
+# Імена
 
-# Pronouns
+* **леся (цьому імені я віддаю перевагу)**
+* параска
+* женя
+* кася
 
-* **Don't use prn/prns on me!!**
-* it/its 
-* she/her
-* sim/sem
-* he/they **only for close mutuals and transfems**
+# Терміни
+
+* щодо мене використовуйте фемінітиви та нейтралітиви
+* ні в якому разу не використовуйте маскулітиви щодо мене
+
+# Займенники
+
+* воно/його
+* вона/її
+* сім/сімох (ті ж відмінки, що і в числівника сім)
+* він/вони **тільки для близьких м'ючів і всіх трансфем людей**
 * [pronouny](https://pronouny.xyz/u/aensereda)
 
-# Other info
+# Инша інформація
 
-* white (ukrainian)
-* agnostic
+* біла (українка)
+* агностична
 * 17
 * SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
-* self-dx ocd and autism
+* ОКР та автизм (самодіягноз)
 
-<img src="https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png" width="25" height="15" /> lesbian <img src="https://user-images.githubusercontent.com/94326065/147364094-5c35cbe3-4d41-4db1-9f55-594b1053f359.png" width="25" height="15" /> transfem <img src="https://user-images.githubusercontent.com/94326065/147364193-8a382647-a2f5-4784-92df-99127f49f332.png" width="25" height="15" /> genderfluid
- <img src="https://user-images.githubusercontent.com/94326065/147364149-a7d45b4e-04f6-4550-aa9f-3e66f0a24b06.jpg" width="25" height="15" /> aroace <img src="https://user-images.githubusercontent.com/94326065/147364248-4ced7c17-f67a-4e4b-afe5-768a98b51f8b.png" width="25" height="15" /> polyamorous
+<img src="https://user-images.githubusercontent.com/94326065/147363672-bf9bbdf9-3046-4ac3-b8a7-eda2b7ff93bb.png" width="25" height="15" /> лесбійка <img src="https://user-images.githubusercontent.com/94326065/147364094-5c35cbe3-4d41-4db1-9f55-594b1053f359.png" width="25" height="15" /> трансфем <img src="https://user-images.githubusercontent.com/94326065/147364193-8a382647-a2f5-4784-92df-99127f49f332.png" width="25" height="15" /> гендернофлюїдна
+ <img src="https://user-images.githubusercontent.com/94326065/147364149-a7d45b4e-04f6-4550-aa9f-3e66f0a24b06.jpg" width="25" height="15" /> ароейс <img src="https://user-images.githubusercontent.com/94326065/147364248-4ced7c17-f67a-4e4b-afe5-768a98b51f8b.png" width="25" height="15" /> поліаморна
 
 
-# Interests
+# Захоплення
  
 * Deltarune
 * Hollow Knight
@@ -81,15 +83,15 @@
 * The Sims
 * Celeste
 * Terraria
-* art
-* typology (mainly enneagram, cognitive functions, attitudinal psyches; *[i don't support mbti](https://16types.carrd.co))*
-* linux, other FOSS
-* linguistics
+* мистецтво
+* типологія (в основному це енеаграма, когнітивні функції, психософія; *[я не підтримує мбті](https://16types.carrd.co))*
+* лінукс та инше ВВПЗ
+* лінгвістика
 
 
-# Links
+# Покликання
 
-* [main twitter account](https://twitter.com/lesyapphic)
-* [art twitter account](https://twitter.com/antogypt)
-* [instagram](https://instagram.com/aensereda)
-* [threads](https://twitter.com/aensereda/status/1387315455619211264?s=19)
+* [головна твітер-обліківка](https://twitter.com/lesyapphic)
+* [твітер-обліківка лише з малюнкамм](https://twitter.com/antogypt)
+* [інстаграм](https://instagram.com/aensereda)
+* [потоки](https://twitter.com/aensereda/status/1387315455619211264?s=19)
