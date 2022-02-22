@@ -3,9 +3,10 @@
 *(tme - transmisogyny exempt, a person who isn't transfem)*
 
 **TMEs ask before following!! (current followers and people whom i followed first are ok)**
-**TME furries dni at all, unless i followed first!!**
 
 * fit the basic criteria
+* russian (unless i follow first)
+* tme furry (unless i follow first)
 * proship
 * radinclus
 * nsfw account
@@ -14,8 +15,7 @@
 * use the term "femboy" and the t-slur as tme
 * make fun of trigger warnings
 * xenogender hater
-* think that pronouns always equal gender
-* support genderbend
+* think that pronouns and appearance always equal gender
 * pedo/zoo/necrophile or a supporter
 * straight/m-spec lesbian/gay or a supporter
 * use slurs you can't reclaim
@@ -36,7 +36,7 @@
 
 * intrusive thoughts
 * weight
-* the word "femboy" and the t-slurs (tag with the catchall if you can't reclaim)
+* the word "femboy" and the t-slur (tag with the catchall if you can't reclaim)
 * use **lesya don't look** or **lesya dont look** as a catchall
 
 
