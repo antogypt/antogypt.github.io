@@ -1,3 +1,6 @@
+# [УКРАЇНСЬКА](https://antogypt.github.io)
+
+
 # DNI
 
 *(tme - transmisogyny exempt, a person who isn't transfem)*
