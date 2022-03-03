@@ -1,11 +1,11 @@
 # [УКРАЇНСЬКА](https://antogypt.github.io)
 
 
-# DNI
-
 *(tme - transmisogyny exempt, a person who isn't transfem)*
 
 **TMEs ask before following!! (people whom i followed first are ok)**
+
+# DNI
 
 * fit the basic criteria
 * russian (unless i follow first)
