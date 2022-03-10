@@ -9,6 +9,7 @@
 
 * fit the basic criteria
 * russian (unless i follow first)
+* use the hammer and sickle emoji (☭)
 * tme furry (unless i follow first)
 * proship
 * radinclus
