@@ -69,6 +69,7 @@
 
 * white (ukrainian)
 * agnostic
+* perisex (not intersex)
 * 17
 * SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
 * self-dx ocd and autism
