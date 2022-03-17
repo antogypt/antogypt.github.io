@@ -46,10 +46,9 @@
 
 # Names
 
-* **lesya (most preferred)**
+* **lesia (most preferred)**
 * paraska
-* zhenya
-* cassius
+* zhenia
 
 # Terms
 
