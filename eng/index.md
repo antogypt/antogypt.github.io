@@ -65,10 +65,11 @@
 
 # Other info
 
-* white (ukrainian)
+* ukrainian (white)
 * agnostic
-* perisex (not intersex)
+* perisex
 * 17
+* i speak ukrainian, english and toki pona. i can also kinda speak belarusian.
 * SiFe (ISFJ), 6w7 1w2 9w8, sp/so, SLOAI, FLEV
 * self-dx ocd and autism
 
