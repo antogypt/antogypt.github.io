@@ -45,9 +45,9 @@
 
 # Names
 
-* **lesia (most preferred)**
-* paraska
-* zhenia
+* **lesia /ˈlɛsʲa/ (most preferred)**
+* paraska /paˈraska/
+* zhenia /ˈʒɛɲa/
 
 # Terms
 
